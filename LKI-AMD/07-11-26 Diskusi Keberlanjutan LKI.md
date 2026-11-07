@@ -22,6 +22,9 @@ Isi buku tahunan
 
 
 # Other
+
+Progress divisi:
+
 Bendahra
 - Pengeluaran sudah tercatat tapi perlu diperdetail
 - kurang lebih ada 600k sekarang
@@ -47,10 +50,23 @@ PSDM
 
 Humasyi
 - staff muda udah dijelasin semuanya hal yang perlu diketahui serta cp
-	- kun faiz berusaha untuk dijalankan, staff muda akan dilibatkan
+- kun faiz berusaha untuk dijalankan lagi di periode berikutnya, staff muda akan dilibatkan
 
 Keputrian
 - bahas tentang pembagian proker 
 - muslimah boothcamp akhinrya bisa berjalan lagi setelah sekian lama hiatus (lagi banyak yang enggak di malang), staff muda ikut juga 
-- 27 desember muslimah sharing session terakhir, nanti akan diubah konsepnya (kayak bikin paper mtq)
-- yang dibatalin muslim berbagi movement
+- 27 november muslimah sharing session terakhir, nanti akan diubah konsepnya (kayak bikin paper mtq)
+- yang dibatalin muslimah berbagi movement
+- muslimah berbagi movement akan sebar surat ke lembaga dakwah fakultas lain (via group keputrian skala fakultas), untuk suratnya minta ke sekretaris
+
+
+---
+
+Staff muda harus dipertahanin, kasih tugas biar mereka ada perkembangan
+
+28 november akan ada cara dari mushola ulul albab (yang akan dilaksanakan di ub forest JAM  6 PAGI)
+- pak randy
+- bu rekyan
+- pak tibyani?
+
+nanti akan ada 
