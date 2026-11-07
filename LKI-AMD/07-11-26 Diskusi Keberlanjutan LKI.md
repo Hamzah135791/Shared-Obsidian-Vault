@@ -74,6 +74,7 @@ Nanti sistemnya akan dipelajari lebih lanjut dulu
 
 # 5. Musyawarah kepengurusan kedepannya baik dari sisi Ikhwan maupun akhwat
 
+
 - Kevin
 	- jadi ketua
 	- mulai nyusun struktur kepengurusan, bisa diskusi dengan ketua UAKI karena mereka nawarin personil untuk membantu seperti jadi bph
@@ -90,7 +91,10 @@ Nanti sistemnya akan dipelajari lebih lanjut dulu
 
 
 
-Pembahasan staff muda:
 - nanti angkatan 26 akan jadi kadiv karena kekurangan orang, harus dibimbing banget 
 - diperiode baru besok bisa lebih fleksibel lagi kalau mau
 - BPH dari UAKI bisa jadi opsi bagus untuk menutup kekurangan SDM
+- event bonding BPI dan BPH agar komunikasi lebih lancar, sama bisa pakai uang kas ataupun lebih menggunakan data fakultas dengan baik
+- bisa mengajukan kajian yang dapat dikonversi menjadi SKM (tapi struktur kajiannya harus bagus dulu)
+	- agak susah, soalnya pernah keputrian ajuin tapi dikasih syarat harus ikut seperti 1 bulan penuh selama ramadhan
+- Studi banding dari undip ke lki dihold dulu soalnya baiknya ke lembaga yang sudah bagus, bukan yang berkembang
