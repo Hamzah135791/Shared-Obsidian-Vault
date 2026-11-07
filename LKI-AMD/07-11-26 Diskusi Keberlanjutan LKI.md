@@ -1,5 +1,5 @@
 
-
+# Poin Pembahasan:
 # 1. Sosialisasi Perancangan yearbook lki amd dan pertanyaan tentang evaluasi proker yg telah berjalan.
 
 Isi buku tahunan
@@ -20,6 +20,8 @@ Isi buku tahunan
 # 5. Musyawarah kepengurusan kedepannya baik dari sisi Ikhwan maupun akhwat
 
 
+
+# Other
 Bendahra
 - Pengeluaran sudah tercatat tapi perlu diperdetail
 - kurang lebih ada 600k sekarang
