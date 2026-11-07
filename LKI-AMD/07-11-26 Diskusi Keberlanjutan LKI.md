@@ -64,9 +64,15 @@ Keputrian
 
 Staff muda harus dipertahanin, kasih tugas biar mereka ada perkembangan
 
-28 november akan ada cara dari mushola ulul albab (yang akan dilaksanakan di ub forest JAM  6 PAGI)
+28 november akan ada acara dari mushola ulul albab (yang akan dilaksanakan di ub forest JAM  6 PAGI)
 - pak randy
 - bu rekyan
 - pak tibyani?
 
-nanti akan ada 
+
+- run down belum ada
+- nanti kayak camping dan seminar gitu
+- akan ada penyampaian hasil kerja lki kepada orang ketakmiran 
+	- ketakmiran dan lki diusahakan untuk lebih saling terlibat oleh wd3, nanti pendaaan akan saling bergantung juga
+	- buat bikin acara di mushola harusnya lebih mudah juga?
+- pendataan kendaran untuk berangkat ke ub forest sudah aman, nanti akan dibuat pasangan naik motor
