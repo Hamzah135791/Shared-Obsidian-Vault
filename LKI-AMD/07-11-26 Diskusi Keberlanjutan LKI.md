@@ -42,3 +42,7 @@ PSDM
 - one week one hadist lancar
 - staff muda harus diajarin one week one hadits, terutama cek dosen 
 - IWI dimasukkin ke year book meskipun tidak terlaksana, tulisnya 50% terlaksana saja soalnya terkendala di human resource
+
+Humasyi
+- staff muda udah dijelasin semuanya hal yang perlu diketahui serta cp
+	- kun faiz berusaha untuk dijalankan, staff muda akan dilibatkan
