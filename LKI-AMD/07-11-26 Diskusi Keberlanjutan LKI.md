@@ -71,7 +71,7 @@ Keputrian
 # 4. Membicarakan rencana muktamar LKI AMD.
 
 - Nanti sistemnya akan dipelajari lebih lanjut dulu
-- rencana desember akhir sekaligus pengukuhan
+- rencana dilaksanakan pada desember akhir sekaligus pengukuhan
 
 
 # 5. Musyawarah kepengurusan kedepannya baik dari sisi Ikhwan maupun akhwat
