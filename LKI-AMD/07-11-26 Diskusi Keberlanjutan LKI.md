@@ -76,8 +76,14 @@ Nanti sistemnya akan dipelajari lebih lanjut dulu
 
 - Kevin
 	- jadi ketua
+	- mulai nyusun struktur kepengurusan, bisa diskusi dengan ketua UAKI karena mereka nawarin personil untuk membantu seperti jadi bph
 - Ershad
 	- jadi sekre
 - Hisyam
 	- baiknya jadi wakil (penasihat) atau bendahara
-- z
+- Dzaky
+	- jadi kadiv psdi? (harus dimakeshare dulu)
+- Faiz
+	- keluar
+- Dhea?
+	- staff muda angkatan 26 , soalnya dia lebih punya pengalaman kepanitiaan
