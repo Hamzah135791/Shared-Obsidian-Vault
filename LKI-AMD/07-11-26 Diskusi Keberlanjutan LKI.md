@@ -15,14 +15,6 @@ Isi buku tahunan
 
 
 # 2. Menanyakan rancangan kegiatan bulan ini dan penugasan ke staff muda.
-# 3. Membicarakan tentang tanggal 28 November dan rencana penyampaian hasil proker selama ini.
-# 4. Membicarakan rencana muktamar LKI AMD.
-# 5. Musyawarah kepengurusan kedepannya baik dari sisi Ikhwan maupun akhwat
-
-
-
-# Other
-
 Progress divisi:
 
 Bendahra
@@ -60,9 +52,7 @@ Keputrian
 - muslimah berbagi movement akan sebar surat ke lembaga dakwah fakultas lain (via group keputrian skala fakultas), untuk suratnya minta ke sekretaris
 
 
----
-
-Staff muda harus dipertahanin, kasih tugas biar mereka ada perkembangan
+# 3. Membicarakan tentang tanggal 28 November dan rencana penyampaian hasil proker selama ini.
 
 28 november akan ada acara dari mushola ulul albab (yang akan dilaksanakan di ub forest JAM  6 PAGI)
 - pak randy
@@ -77,4 +67,17 @@ Staff muda harus dipertahanin, kasih tugas biar mereka ada perkembangan
 	- buat bikin acara di mushola harusnya lebih mudah juga?
 - pendataan kendaran untuk berangkat ke ub forest sudah aman, nanti akan dibuat pasangan naik motor 
 	- laki dan perempuan dipisah motornya
-- 
+
+# 4. Membicarakan rencana muktamar LKI AMD.
+
+Nanti sistemnya akan dipelajari lebih lanjut dulu
+
+# 5. Musyawarah kepengurusan kedepannya baik dari sisi Ikhwan maupun akhwat
+
+- Kevin
+	- jadi ketua
+- Ershad
+	- jadi sekre
+- Hisyam
+	- baiknya jadi wakil (penasihat) atau bendahara
+- z
