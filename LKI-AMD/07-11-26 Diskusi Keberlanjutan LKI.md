@@ -70,9 +70,11 @@ Staff muda harus dipertahanin, kasih tugas biar mereka ada perkembangan
 - pak tibyani?
 
 
-- run down belum ada
+- run down belum ada sehingga belum tau persiapan barang2 yang harus dibawa apa saja
 - nanti kayak camping dan seminar gitu
 - akan ada penyampaian hasil kerja lki kepada orang ketakmiran 
 	- ketakmiran dan lki diusahakan untuk lebih saling terlibat oleh wd3, nanti pendaaan akan saling bergantung juga
 	- buat bikin acara di mushola harusnya lebih mudah juga?
-- pendataan kendaran untuk berangkat ke ub forest sudah aman, nanti akan dibuat pasangan naik motor
+- pendataan kendaran untuk berangkat ke ub forest sudah aman, nanti akan dibuat pasangan naik motor 
+	- laki dan perempuan dipisah motornya
+- 
