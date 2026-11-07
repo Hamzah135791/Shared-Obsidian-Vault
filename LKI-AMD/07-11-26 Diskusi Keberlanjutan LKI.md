@@ -70,7 +70,9 @@ Keputrian
 
 # 4. Membicarakan rencana muktamar LKI AMD.
 
-Nanti sistemnya akan dipelajari lebih lanjut dulu
+- Nanti sistemnya akan dipelajari lebih lanjut dulu
+- rencana desember akhir sekaligus pengukuhan
+
 
 # 5. Musyawarah kepengurusan kedepannya baik dari sisi Ikhwan maupun akhwat
 
@@ -100,4 +102,4 @@ Nanti sistemnya akan dipelajari lebih lanjut dulu
 	- agak susah, soalnya pernah keputrian ajuin tapi dikasih syarat harus ikut seperti 1 bulan penuh selama ramadhan
 - Studi banding dari undip ke lki dihold dulu soalnya baiknya ke lembaga yang sudah bagus, bukan yang berkembang
 	- bisa tanya mas nugi ketua UAKI aja
-- 
+- Diakhir periode staff muda ditanyain komitmen untuk melanjutkan jadi pengurus, ajak mereka untuk sering2 diskusi dengan pembina
