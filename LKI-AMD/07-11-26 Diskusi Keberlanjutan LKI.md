@@ -48,3 +48,9 @@ PSDM
 Humasyi
 - staff muda udah dijelasin semuanya hal yang perlu diketahui serta cp
 	- kun faiz berusaha untuk dijalankan, staff muda akan dilibatkan
+
+Keputrian
+- bahas tentang pembagian proker 
+- muslimah boothcamp akhinrya bisa berjalan lagi setelah sekian lama hiatus (lagi banyak yang enggak di malang), staff muda ikut juga 
+- 27 desember muslimah sharing session terakhir, nanti akan diubah konsepnya (kayak bikin paper mtq)
+- yang dibatalin muslim berbagi movement
