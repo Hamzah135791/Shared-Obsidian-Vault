@@ -87,3 +87,10 @@ Nanti sistemnya akan dipelajari lebih lanjut dulu
 	- keluar
 - Dhea?
 	- staff muda angkatan 26 , soalnya dia lebih punya pengalaman kepanitiaan
+
+
+
+Pembahasan staff muda:
+- nanti angkatan 26 akan jadi kadiv karena kekurangan orang, harus dibimbing banget 
+- diperiode baru besok bisa lebih fleksibel lagi kalau mau
+- BPH dari UAKI bisa jadi opsi bagus untuk menutup kekurangan SDM
