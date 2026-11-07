@@ -91,6 +91,7 @@ Nanti sistemnya akan dipelajari lebih lanjut dulu
 
 
 
+# Other Note
 - nanti angkatan 26 akan jadi kadiv karena kekurangan orang, harus dibimbing banget 
 - diperiode baru besok bisa lebih fleksibel lagi kalau mau
 - BPH dari UAKI bisa jadi opsi bagus untuk menutup kekurangan SDM
@@ -98,3 +99,5 @@ Nanti sistemnya akan dipelajari lebih lanjut dulu
 - bisa mengajukan kajian yang dapat dikonversi menjadi SKM (tapi struktur kajiannya harus bagus dulu)
 	- agak susah, soalnya pernah keputrian ajuin tapi dikasih syarat harus ikut seperti 1 bulan penuh selama ramadhan
 - Studi banding dari undip ke lki dihold dulu soalnya baiknya ke lembaga yang sudah bagus, bukan yang berkembang
+	- bisa tanya mas nugi ketua UAKI aja
+- 
